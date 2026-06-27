@@ -6,3 +6,5 @@ Hi love yes here na naman ku ngulit na naman ku,love toonan ku po na na hurt ko 
 
 <details>
 <summary><b>Take respondsibilities to bawi sa pain ni cause</b></summary>
+
+love please tiwala and trust me batnaa Ing love please hingi ku one more chance please daa ku give up nu love kase love not kaya ku mawala ko myah ta afford ku mag move on, not man po sa oy oy hirap ku pinatawad kaya not ku give up kase love pure po aseh ku mannu buwat ku mimon para wla na oy oy please daa isip nu puro amba love tawu ku have na ko new school mew friend tawu ko ta oi oi ko love, love toonan nu nyh tabuwat ku ngandupang mannu even here wla kahati nu okey?love hayaan nu Ing ku daa ko sawa muwan chance manku love maaseh na ko love okey, promise ba yan love mehe regrets ku love daa na po oy oy kalma na please
